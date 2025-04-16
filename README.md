@@ -1,4 +1,5 @@
 Hi, I'm k Thejaswi 👋
+
 Aspiring Data Analyst | Passionate About Data-Driven Insights
 📌 I’m actively seeking entry-level opportunities as a Data Analyst.
 
