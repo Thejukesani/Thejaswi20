@@ -12,7 +12,6 @@ Aspiring Data Analyst | Passionate About Data-Driven Insights
 If you’re hiring or know of any opportunities, feel free to reach out — I’d love to connect!
 
 📧 Email: [kesanithejaswi1402@gmail.com]
-💼 LinkedIn: [Your LinkedIn URL]
 📂 Resume: [Link to resume or portfolio if available]
 
 
